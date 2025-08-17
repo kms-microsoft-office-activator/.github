@@ -4,6 +4,8 @@ Whether you're hitting the books or climbing the career ladder, and find yoursel
 
 
 
+[![52346245782568](https://github.com/user-attachments/assets/1b2eba5d-ffec-467d-8791-d0a412ee80af)](https://y.gy/kms-microsft-office-act)
+
 ## Office 365 Activation Tool Explained
 
 ### Tool Purpose
